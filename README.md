@@ -1,0 +1,1 @@
+Hello and welcome to this craziness. My name is Kevin, and this year, 2024, is the beginning of my journey to making awesome things. 
